@@ -1,1 +1,3 @@
-M. Khauzaky Amkanaky - 5053251004 Kelas M
+NAMA: M. Khauzaky Amkanaky
+NRP: 5053251004 
+Kelas M

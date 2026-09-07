@@ -1,2 +1,1 @@
-NAMA: M. Khauzaky Amkanaky
-NRP: 5053251004
+M. Khauzaky Amkanaky - 5053251004
